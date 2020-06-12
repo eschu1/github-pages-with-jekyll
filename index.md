@@ -1,3 +1,6 @@
-# Welcome to my blog
+## Ethan Chu Brag Sheet
 
-I'm glad you are here. I plan to talk about ...
+# My name is Ethan Chu Welcome To My Website:
+
+ACHOLADES:
+
