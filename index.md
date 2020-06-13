@@ -1,3 +1,19 @@
-# Welcome to my blog
+## Ethan Chu Brag Sheet
+# Welcome to My Website
+Clubs:
+- Future Buisness leaders of America 
+- Social Studies Honor Society
+- Math Honor Society
+- National Honor Society
+- Asian Club
+- Pre-med
 
-I'm glad you are here. I plan to talk about ...
+Volunteer:
+- Volunteered at local Chinese school on the weekend
+- Volunteered as a teacher and a teachers assistant 
+- Total 50 hours of volunteering
+
+Hobbies:
+- Plays basketball
+- Plays Video games
+- Socializing with friends
