@@ -1,6 +1,6 @@
 # Welcome to my blog
 My name is Ethan Chu and I will be talking about myself...
-
+![]](picture.jpg)
 Clubs:
 - Future Buisness leaders of America 
 - Social Studies Honor Society
