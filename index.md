@@ -23,3 +23,7 @@ Hobbies:
 - Socializing with friends
 - Running
 - Cooking
+
+Social Media:
+Snapchat-imma_echu
+Instagram- ethan_chew
