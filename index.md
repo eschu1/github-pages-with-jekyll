@@ -1,4 +1,5 @@
 ## Welcome to my blog
+
 My name is Ethan Chu and I will be talking about myself...
 
 ![](sexy image.jpeg)
